@@ -15,4 +15,4 @@
 
 <img width="736" height="414" alt="61495e8ff83e40aed3c94df1482adb20" src="https://github.com/user-attachments/assets/112c278e-8db1-4736-b305-3d28c69134ff" />
 Sign🪽
-<img width="2048" height="2048" alt="Không Có Tiêu Đề394_20260418210339" src="https://github.com/user-attachments/assets/bac27c9d-9bf4-43d7-94a3-42bfd5c25d07" />
+<img width="204" height="204" alt="Không Có Tiêu Đề394_20260418210339" src="https://github.com/user-attachments/assets/bac27c9d-9bf4-43d7-94a3-42bfd5c25d07" />
