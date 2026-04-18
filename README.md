@@ -1,1 +1,11 @@
-# W4tyz-
+<img width="500" height="281" alt="1cf01622cc05eb956b3ded998d70eff2" src="https://github.com/user-attachments/assets/4bd6a92d-84dd-48a2-a3d4-608bfb987b01" />
+𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐 𝚖𝚢 𝚙𝚊𝚐𝚎. 
+𝄞⨾𓍢ִ໋♬⋆.˚𝄢ᡣ𐭩ଘ━☆ﾟ.*･｡ﾟ★
+𝙸𝚏 𝚢𝚘𝚞'𝚍 𝚕𝚒𝚔𝚎 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚘𝚛𝚎 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎,
+𝚙𝚕𝚎𝚊𝚜𝚎 𝚛𝚎𝚊𝚍 𝚖𝚢 𝚙𝚊𝚐𝚎.
+𝙸𝚏 𝚢𝚘𝚞 𝚑𝚊𝚟𝚎 𝙵𝚊𝚌𝚎𝚋𝚘𝚘𝚔, 𝚙𝚕𝚎𝚊𝚜𝚎 𝚊𝚍𝚍 𝚖𝚎 𝚊𝚜 𝚊 𝚏𝚛𝚒𝚎𝚗𝚍.
+⋅˚₊‧ ଳ⋆.࿔*:･࿐ ࿔*:･ﾟ⋆౨ৎ˚⟡˖ ࣪
+ＴＨＡＮＫ ＦＯＲ ＲＥＡＤＩＮＧ
+<img width="736" height="414" alt="61495e8ff83e40aed3c94df1482adb20" src="https://github.com/user-attachments/assets/112c278e-8db1-4736-b305-3d28c69134ff" />
+Sign🪽
+<img width="2048" height="2048" alt="Không Có Tiêu Đề394_20260418210339" src="https://github.com/user-attachments/assets/bac27c9d-9bf4-43d7-94a3-42bfd5c25d07" />
